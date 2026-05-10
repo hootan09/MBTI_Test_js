@@ -10,7 +10,7 @@ Carl Gustav Jung
 Psychological Types
 را منتشر کرد و در آن درباره تفاوت‌های ذاتی افراد در نحوه ادراک و تصمیم‌گیری صحبت کرد.
 
-بعدها دو زن آمریکایی به نام‌های:
+بعدها دو زن آمریکایی (مادر و دختر) به نام‌های:
 
 * Katharine Cook Briggs
 * Isabel Briggs Myers
